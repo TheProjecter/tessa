@@ -1,0 +1,1 @@
+![http://groups.google.co.uk/group/tessa-dev/web/Tessa+IM_map.png](http://groups.google.co.uk/group/tessa-dev/web/Tessa+IM_map.png)
